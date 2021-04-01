@@ -1,0 +1,4 @@
+- Soy Daniel Cobos, me interesan temas relacionados con la desigualdad, educación y estratificación social.
+- Actualmente soy estudiante de Sociología a nivel doctorado.
+- Me gusta aportar y aprender sobre técnicas y métodos de investigación social, utilizando herramientas como la programación en distintos lenguajes
+- Twitter: @dancobm ; FB: /dancobos ; Researchgate: https://www.researchgate.net/profile/Daniel-Cobos-Marin
